@@ -1,4 +1,4 @@
-ignore my username i didnt know what else to change it to ok also read my first strawpage ok
+ignore my username i didnt know what else to change it to ok also read my first strawpage ok AND new ata woah..i had to delete and rmk it it was buggy as hell ok
 
 <p align="center">
 work in progress. ( 11.8.25 )
