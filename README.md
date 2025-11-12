@@ -1,4 +1,4 @@
-ignore my username i didnt know what else to change it to ok
+ignore my username i didnt know what else to change it to ok also read my first strawpage ok
 
 <p align="center">
 work in progress. ( 11.8.25 )
